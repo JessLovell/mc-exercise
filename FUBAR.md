@@ -17,7 +17,10 @@ Supercalifradgilisticexpealidocious isn't a freakin' word, okurrrr.
 
 This is a taco-burrito conversation, it's nach-yo's.
 
+If I had a dollar for every quarter I have, I'd be broke.
+
 in these quiet hours i often wonder what it is that is good in life?
 CAN YOU ANSWER THIS, MORTAL!!!!!!????
 
 No. 
+
