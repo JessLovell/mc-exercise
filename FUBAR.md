@@ -10,3 +10,5 @@ HIIIII MY NAME IS BOB I SMELL CUZ I DONT WHITE SPACE CORRECTLY.
 Carol is a man and Bob is a female. Get it right!
 
 Alice is short for Vanessa and Ted is code for Rickard.
+
+Everyone is in the bathroom so im doing this fast and no one will notice. tehe!
